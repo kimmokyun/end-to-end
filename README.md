@@ -19,3 +19,4 @@
 
 충돌해라
 dkdkkskdkskskddk
+이번엔 충돌나겠지?
